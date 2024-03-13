@@ -35,4 +35,4 @@
 </ul>
 </br>
 
-[더 자세한 Notion 설명 페이지](https://www.notion.so/subbie/LAW-85a70f1689324a27805ebfee18683558")
+[더 자세한 Notion 설명 페이지](https://www.notion.so/subbie/LAW-85a70f1689324a27805ebfee18683558)
